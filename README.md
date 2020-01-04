@@ -1,0 +1,2 @@
+# chika
+gunakan dengan bijak
